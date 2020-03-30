@@ -1,0 +1,2 @@
+# mini_projek2
+ 
